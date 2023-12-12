@@ -7,7 +7,7 @@
 -   The ability to focus deeply on a difficult task for a long time of periods.
     
 
-### [](#2-paraphrase-all-the-ideas-in-the-above-videos-and-this-one-in-detail)2. According to author how  to do deep work  properly,in few points**.
+### [](#2-paraphrase-all-the-ideas-in-the-above-videos-and-this-one-in-detail)2. According to author how  to do deep work  properly,in few points.
 
 -  Here are concise and important points for effective deep work:k.
     
